@@ -1,5 +1,5 @@
 # Política de Privacidad de LazyWheels
-Fecha de entrada en vigor: 8/10/2024
+Fecha de entrada en vigor: 23/6/2025
 
 LazyWheels (en adelante, "el juego") se compromete a proteger tu privacidad. Esta Política de Privacidad describe cómo recopilamos, usamos y protegemos tu información al utilizar nuestro juego.
 
